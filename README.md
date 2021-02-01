@@ -583,6 +583,7 @@
     √ 协助企业快速响应并融入创新市场。
     
     
+#10 设计图
 
-    
+    http://assets.processon.com/chart_image/6017645d7d9c0859efc56979.png
 
