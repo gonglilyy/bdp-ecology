@@ -587,3 +587,8 @@
 
     http://assets.processon.com/chart_image/6017645d7d9c0859efc56979.png
 
+11、技术交流
+
+bdp交流群: https://my-macro-oss.oss-cn-shenzhen.aliyuncs.com/mall/images/design/wechat_group/bdp_%E4%BA%A4%E6%B5%81%E7%BE%A4.jpg
+
+作者微信: https://my-macro-oss.oss-cn-shenzhen.aliyuncs.com/mall/images/wechat/%E5%BE%AE%E4%BF%A1.jpg
